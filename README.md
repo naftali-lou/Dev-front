@@ -20,3 +20,6 @@ Buscando colaborar com projetos em Front-end usando HTML, CSS e JAVASCRIPT.
 6: Eu posso ajudar dando dicas e se caso precisar de ajuda em um projeto poderei ajudar dando algumas informações. E posso ajuda-ló na parte front, na parte HTML, CSS E JAVASCRIPT.
 
 7: Pelo email : Naftaliloudasilva2017@gmail.com ou Twitter ( @lou_naftali )
+
+
+LOGO Provisoria: https://prnt.sc/tu0no6
